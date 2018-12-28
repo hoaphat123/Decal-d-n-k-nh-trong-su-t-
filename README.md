@@ -1,0 +1,2 @@
+# Decal-d-n-k-nh-trong-su-t-
+Decal dán kính trong suốt với độ dày là 2 Mil, có độ bền cao nên sẽ giúp cho tấm kính chống chịu được những va đập mạnh từ bên ngoài. Hay chúng ta có thể hiểu theo cách khác đó là giấy dán kính trong suốt như một tấm kính cường lực. Nên chúng thường được sử dụng cho những tấm kính ở lan can, kính ở ngoài trời, kính sử dụng làm mái che…#giay_dan_kinh #decal_dan_kinh #dan_kinh_hoa_phat #phim_cach_nhiet Nguồn bài viết tại: https://dankinhhoaphat.com/decal-dan-kinh-trong-suot/
